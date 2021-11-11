@@ -10,4 +10,4 @@
 [Link](https://cdn.discordapp.com/attachments/805771081587359794/887317963017973840/Desktop_2021.09.14_-_21.43.59.02.mp4)
 
 ###### Made By / 수콩#1115
-🐬 Dolphin Server (__**Korea Server No.1**__) <a href="https://discord.gg/dolphin" target="_blank"><img src="https://img.shields.io/badge/Dolphin Discord-5865F2?style=flat-square&logo=Discord&logoColor=FFF"/></a>
+🐬 Dolphin Server (__**Korea Server No.1**__) <a href="https://discord.gg/dolp" target="_blank"><img src="https://img.shields.io/badge/Dolphin Discord-5865F2?style=flat-square&logo=Discord&logoColor=FFF"/></a>
